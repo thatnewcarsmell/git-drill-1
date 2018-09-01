@@ -1,0 +1,1 @@
+"So you gotta ask yourself something, punk: do you feel lucky. Well...do ya, punk?"
